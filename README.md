@@ -18,3 +18,6 @@
 ![Result3](https://github.com/user-attachments/assets/2056b67b-7654-4f6d-bb36-44e466ddd0e3)
 ![Result4](https://github.com/user-attachments/assets/754e8c1f-5acd-4735-bf82-65ba60a64f3e)
 ![Result5](https://github.com/user-attachments/assets/cd984bed-fa28-49b1-9381-48f89c371f47)
+
+### Видео:
+https://github.com/user-attachments/assets/49786228-67a5-4bfb-abfe-599b07d4f84e
